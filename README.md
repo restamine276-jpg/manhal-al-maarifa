@@ -1,1 +1,0 @@
-# manhal-al-maarifa
